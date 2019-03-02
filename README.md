@@ -1,2 +1,2 @@
-# zhanna-makhmudova.github.io
-new pages in this internet thing
+# Жанна Махмудова
+new pages in da internet
