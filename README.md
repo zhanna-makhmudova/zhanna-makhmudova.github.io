@@ -1,2 +1,2 @@
-# Жанна Махмудова
-new pages in da internet
+# some news on da internet
+FuCk YoU ZneNyA VolKiV
